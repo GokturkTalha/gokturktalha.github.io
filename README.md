@@ -1,1 +1,1 @@
-# tipoloji.github.io
+# gokturktalha.github.io
